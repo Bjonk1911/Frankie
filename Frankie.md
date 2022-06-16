@@ -9,7 +9,7 @@ If a skin is missing or you are looking for other skins also feel free to DM me.
 Discord: **Bjönk#1911**
 
 
-## [tekkito_antix+frankie_mix](https://drive.google.com/file/d/1x0Bes8wNiSUj4YOCV3ie2P50qou_tlKa/view?usp=sharing)
+## [tekkito_antix+frankie_mix](https://drive.google.com/file/d/1WJuV07LR-RSrq0wMVWuJHOUKaCl8vUrE/view?usp=sharing)
 ![](https://i.imgur.com/eoHPCR5.jpg)
 
 ## [XooMoon Frankie Edit ](https://drive.google.com/file/d/15WJ38fU9hF6tPSolIBOiQ1aoSGr69LbC/view?usp=sharing)
