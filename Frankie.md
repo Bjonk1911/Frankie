@@ -14,8 +14,8 @@ Discord: **Bjönk#1911**
 ## [XooMoon Frankie Edit ](https://drive.google.com/file/d/15WJ38fU9hF6tPSolIBOiQ1aoSGr69LbC/view?usp=sharing)
 ![](https://i.imgur.com/pb83iCB.jpg)
 
-## [Aristia Edit](https://www.dropbox.com/s/g9du153tn4gr4v7/-%20varvalian%20but%20ryan.osk?dl=0)
-![](https://camo.githubusercontent.com/358e8cbacfaa897c64ecceb365b2beef2f5b8cf469c84c09510b0a5596684c87/68747470733a2f2f6f73752e7070792e73682f73732f3133303437313336)
+## [Aristia Edit](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
+![](https://camo.githubusercontent.com/71077b8d470d1573061276aa3f1a150cf0685600006e14ca96d5ba9d5a518cdf/68747470733a2f2f6f73752e7070792e73682f73732f31373539393732312f34353236)
 
 ## [tekkito_antix+frankie_mix](https://drive.google.com/file/d/1WJuV07LR-RSrq0wMVWuJHOUKaCl8vUrE/view?usp=sharing)
 ![](https://i.imgur.com/eoHPCR5.jpg)
