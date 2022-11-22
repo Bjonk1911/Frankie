@@ -14,6 +14,9 @@ Discord: **Bjönk#1911**
 ## [XooMoon Frankie Edit ](https://drive.google.com/file/d/15WJ38fU9hF6tPSolIBOiQ1aoSGr69LbC/view?usp=sharing)
 ![](https://i.imgur.com/pb83iCB.jpg)
 
+## [Aesthetic_1.3.9](https://drive.google.com/file/d/10VgAvJF1PE1hIpqAPYj2rtYABp5LTyEc/view?usp=sharing)
+![](https://i.imgur.com/seuXUQ4.jpg)
+
 ## [Aristia Edit](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
 ![](https://camo.githubusercontent.com/71077b8d470d1573061276aa3f1a150cf0685600006e14ca96d5ba9d5a518cdf/68747470733a2f2f6f73752e7070792e73682f73732f31373539393732312f34353236)
 
