@@ -10,6 +10,8 @@ Discord: **Bjönk#1911**
 
 
 
+## [BlooXooRu](https://drive.google.com/file/d/1OaAYtWzKcjBmOT0D1XKpnHxPqdMUZPyT/view)
+![](https://i.imgur.com/wVCHLyk.jpg)
 
 ## [XooMoon Frankie Edit ](https://drive.google.com/file/d/15WJ38fU9hF6tPSolIBOiQ1aoSGr69LbC/view?usp=sharing)
 ![](https://i.imgur.com/pb83iCB.jpg)
